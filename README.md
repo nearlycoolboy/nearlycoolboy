@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @nearlycoolboy
 - 👀 I’m interested in design basically
-- 🌱 I’m currently a Visual and UI designer
+- 🌱 I’m currently a Visual and UI designer and your go to DevOps guy
 - 💞️ I’m looking to collaborate on anything related to design
 - 📫 How to reach me nearlycoolboy_@outlook.com
 - 🤝 I am open to collaborations and contracts
